@@ -1,1 +1,1 @@
-# job
+Just for myjob recurit based on blockchain technoloy and idea 2018-04-12
